@@ -1,4 +1,4 @@
-# MELHOR SITE PARA COMPRAR SEGUIDORES REAIS EM 2025
+# MELHOR SITE PARA COMPRAR SEGUIDORES REAIS EM 2026
 
 ## A Revolução do Engajamento no Instagram: Por Que Comprar Seguidores Reais?
 
